@@ -1,0 +1,1 @@
+# Static-Web-Ui![screencapture-file-C-Users-Admin-Desktop-new1-Static-Web-Ui-index-html-2022-08-24-19_21_38](https://user-images.githubusercontent.com/109981543/186436225-c200755f-c93c-4c0d-b9e8-6cb45330d4a3.png)
